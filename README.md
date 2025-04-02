@@ -1,4 +1,4 @@
-![Header](https://github.com/eurapatea/eurapatea/blob/main/assets/vi.gif)
+![Header](https://pin.it/tovB7IVif)
 
 ## I'm desing websites and listen to sad music ;( 
 
